@@ -1,0 +1,1 @@
+# nmbjkguk.c
